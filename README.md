@@ -1,1 +1,1 @@
-# DariaKanev.gethub.io
+# Information Tecnhology Skills Project
